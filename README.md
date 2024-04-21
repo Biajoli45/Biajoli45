@@ -1,4 +1,4 @@
-- 👋  OLá, me chamo Julia aqui como @Biajoli45
+- 👋  OLá, me chamo Julia aqui @Biajoli45
 - 👀 Estou interessada em aprender, compartilhar, ensinar e mostrar meus trabalhos
 - 🌱 Atualmente estou aprendendo estudando na Alura   
 - 💞️ Procuro colaborar em tudo que eu aprendi e emus desafios e conquistas
